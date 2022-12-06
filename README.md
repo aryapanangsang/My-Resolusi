@@ -1,0 +1,2 @@
+# My-Resolusi
+Resolusi Saya
